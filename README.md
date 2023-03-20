@@ -1,0 +1,2 @@
+# UGAS
+LATIHAN 1
